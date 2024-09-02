@@ -1,2 +1,0 @@
-# BMW-
-PAGE ABOUT BMW
